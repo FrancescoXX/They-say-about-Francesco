@@ -1,11 +1,11 @@
-# They-say-about-me
-
-This is a list of the content I shared about Web3 for the upcoming 100 days
+# They-say-about-Francesco
 
 You can find Francesco [here](http://francescociulla.com)
 
+Tired of losing all the nice comments and messages on all the social media, Francesco finally decided to create a GitHub Repository to keeep tracks of the best ones.
 
 
+![image](https://user-images.githubusercontent.com/18360871/158318894-5d5dd3ad-3e34-4066-95a4-dcce14ee2ff6.png)
 
 
 | Screenshot           | Who | Link|
