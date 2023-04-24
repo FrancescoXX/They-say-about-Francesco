@@ -14,6 +14,5 @@ Tired of losing all the nice comments and messages on all the social media, Fran
 |![image](https://user-images.githubusercontent.com/18360871/158321170-691398a6-63bc-472b-abd2-fec1c4c44147.png)|https://www.tiktok.com/@francesco.ciulla/video/7071941881046863109|https://www.tiktok.com/@dilmerval|
 |![image](https://user-images.githubusercontent.com/18360871/160601852-2d7b6092-11e9-4a33-8aa6-7cbf9e35e2f1.png)|https://twitter.com/_Shreya_Trivedi/status/1508767532387569668|https://twitter.com/_Shreya_Trivedi|
 
-
 https://twitter.com/Talhaverse/status/1525027180698386433
 https://twitter.com/kylepdotco/status/1465289645579771906
